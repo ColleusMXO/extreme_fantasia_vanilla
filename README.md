@@ -7,3 +7,5 @@ https://suzuri.jp/kakuutcgX/digital_products/72694
 エクストリームファンタジアのルールは公式動画https://youtu.be/1HMmd1HvZSQ
 もしくは、準公式ルールブック　https://docs.google.com/document/d/19yS51koQPj15R99DQeFpe-hc8uRRatpqiIhtQ_Oei6Q/edit?tab=t.0
 を参照ください。
+
+基本的なルールは一緒ですが、マリガンは何回でもできるようになってます。
